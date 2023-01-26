@@ -1,0 +1,1 @@
+송서연([@Seoyeon6](https://github.com/Seoyeon6))의 스터디 기록입니다.
